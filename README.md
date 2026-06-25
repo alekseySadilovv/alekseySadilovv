@@ -18,7 +18,7 @@ Contributed to complex product areas such as partner platforms, recommendation s
 
 ## Experience
 
-### Ozon *(06/2025 — Present · 1 year)*
+### Ozon *(06/2025 — Present · 1+ year)*
 
 > One of the largest marketplaces with millions of users: shopping, delivery, fintech and travel in a single ecosystem. [App Store](https://apps.apple.com/ru/app/ozon-%D1%82%D0%BE%D0%B2%D0%B0%D1%80%D1%8B-%D0%BE%D0%B4%D0%B5%D0%B6%D0%B4%D0%B0-%D0%B1%D0%B8%D0%BB%D0%B5%D1%82%D1%8B/id407804998)
 
@@ -43,7 +43,7 @@ Contributed to complex product areas such as partner platforms, recommendation s
 
 ---
 
-### Detsky Mir *(03/2021 — 02/2023 · 1.9 years)*
+### Detsky Mir *(03/2021 — 02/2023 · 2 years)*
 
 > Mobile app for one of Russia's largest children's retail chains, with an audience of 8M+ users. [App Store](https://apps.apple.com/ru/app/%D0%B4%D0%B5%D1%82%D1%81%D0%BA%D0%B8%D0%B9-%D0%BC%D0%B0%D0%B3%D0%B0%D0%B7%D0%B8%D0%BD-%D0%B4%D0%B5%D1%82%D1%81%D0%BA%D0%B8%D0%B9-%D0%BC%D0%B8%D1%80/id1444328363)
 
